@@ -1,0 +1,1 @@
+# shamal-start-workshop
